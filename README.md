@@ -1,4 +1,4 @@
-　　　　　　　　![](https://komarev.com/ghpvc/?username=loathed-being&color=cc9767&label=hello+noobs)
+　　　　　　　　![](https://komarev.com/ghpvc/?username=loathed-being&color=cc9767&label=hooters)
                
 heavy wip ok? ok..
 ![](https://i.postimg.cc/x8Ht36xb/3ce8142337ce4ef77d33cfcd55049d35-(1).jpg)
