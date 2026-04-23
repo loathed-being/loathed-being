@@ -1,6 +1,5 @@
-　　　　　　　　![](https://komarev.com/ghpvc/?username=loathed-being&color=cc9767&label=hooters)
+　　　　　　　　![](https://komarev.com/ghpvc/?username=loathed-being&color=f2474a&label=wip)
                
-heavy wip ok? ok..
-![](https://i.postimg.cc/x8Ht36xb/3ce8142337ce4ef77d33cfcd55049d35-(1).jpg)
-![](https://i.postimg.cc/cJfr2QGB/5dfbff47e89f180f095f64cabbdec93a.jpg)
+graphic is a heavy wip
+![](https://i.postimg.cc/BbMVTz0y/tumblr-8efc46233bf1c3a54e678f07208a6132-895b90e6-2048.jpg)
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31bej4rti6523blb2ynlejvoexdu&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=cf6171&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
