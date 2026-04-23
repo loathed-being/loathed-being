@@ -1,4 +1,4 @@
-　　　　　　　　![](https://komarev.com/ghpvc/?username=loathed-being&color=f2474a&label=(๑ơ . ơ))
+　　　　　　　　![](https://komarev.com/ghpvc/?username=loathed-being&color=f2474a&label=﹙๑ơ . ơ﹚)
                
 graphic is a heavy wip
 ![](https://i.postimg.cc/BbMVTz0y/tumblr-8efc46233bf1c3a54e678f07208a6132-895b90e6-2048.jpg)
