@@ -17,4 +17,4 @@ $${\color{#879966}\text{⠀⠀⠀⠀⠀⠀  ꉂ(˵˃ ᗜ ˂˵)　　shoebilly⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ![](https://i.postimg.cc/QCSFs9Qp/Untitled179-20260603004514.png)
-$${\color{#682f38}\text{arts are not mine! crds to howl-arnon on tumblr!}}$$
+$${\color{#682f38}\text{arts are not mine! crds to @howl-arnon on tumblr!}}$$
