@@ -2,4 +2,10 @@
                
 this whole readme is a HEAVY wip
 ![](https://i.postimg.cc/4x3Hw56V/Untitled179-20260603012459.png)
+               
+
+$${\color{#682f38}\text{text UGGGHHH I HATE LAYOUTS wipwipwip}}$$
+
+
+               
 ![](https://i.postimg.cc/QCSFs9Qp/Untitled179-20260603004514.png)
