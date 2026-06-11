@@ -1,3 +1,3 @@
-　　　　　　　　![](https://komarev.com/ghpvc/?username=loathed-being&color=56453F8&label=hooters)
+　　　　　　　　![](https://komarev.com/ghpvc/?username=loathed-being&color=56453F&label=hooters)
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 wip remaking. AGAIN. LOL
